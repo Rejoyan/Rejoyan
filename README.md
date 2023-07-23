@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Rejoyan
 - 👀 I’m From Narayanganj
-- 🌱 I’m currently learning Website development
 - 💞️ 
 - 📫 How to reach me ...
 - E-mail : rejoyanhridoyk@gmail.com 
